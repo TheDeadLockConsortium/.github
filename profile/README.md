@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+We are a collation of individuals looking to create a better world, one small step at a time.
 <!--
 
 **Here are some ideas to get you started:**
