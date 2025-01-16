@@ -1,5 +1,17 @@
 ## Hi there 👋
-We are a collation of individuals looking to create a better world, one small step at a time.
+
+We are a coalition of individuals and organizations looking to create a better world, one small step at a time.
+
+Our Goals
+ - Preservation
+ - Regrowth
+ - Innovation
+
+How you can help us?
+ 
+ - Be yourself and strive to improve in the little ways!
+
+Reach us through Word of Mouth for now :)
 <!--
 
 **Here are some ideas to get you started:**
